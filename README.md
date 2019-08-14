@@ -12,5 +12,9 @@ I think he is right! This application helps children learning English more effic
 
 #Bug report
 * Please contact [haward79's website](https://www.haward79.tw/) for more info.
+**haward79's website will be updated in two to four weeks.**
+
+#Just an Ad
+[Taiwancan](https://www.taiwancan.tw/)
 
 
