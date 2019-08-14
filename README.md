@@ -15,6 +15,6 @@ I think he is right! This application helps children learning English more effic
 **haward79's website will be updated in two to four weeks.**
 
 #Just an Ad
-[Taiwancan](https://www.taiwancan.tw/)
+*[Taiwancan](https://www.taiwancan.tw/)
 
 
